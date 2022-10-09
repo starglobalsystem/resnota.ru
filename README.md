@@ -1,0 +1,1 @@
+# resnota.ru
